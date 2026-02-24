@@ -127,4 +127,3 @@ Define:
 - Diversidad real de clases
 - Castle Siege altamente estratégico
 
-Muchos proyectos privados tomaron Season 6 como base por su equilibrio entre contenido y estabilidad.
