@@ -2,7 +2,7 @@
 
 ## Revive la era donde nació la verdadera guerra.
 
-Skyren Mu comienza en **Season 1 (2003)**, la expansión que transformó MU en un MMORPG político y competitivo.
+Skyren Mu comienza en **Season 1**, la expansión que transformó MU en un MMORPG político y competitivo.
 
 ---
 
