@@ -17,9 +17,6 @@ Skyren Mu comienza en **Season 1**, la expansión que transformó MU en un MMORP
 
 ---
 
-Aquí no existen sistemas inflados ni progresiones artificiales.  
-Aquí la fuerza se demuestra en guerra.
-
 La economía importa.  
 Las guilds dominan.  
 El castillo decide el poder.
