@@ -47,5 +47,3 @@ Será una expansión anunciada.
 
 # Skyren Mu
 
-### Donde la guerra no se reinicia…  
-### Se conquista.
